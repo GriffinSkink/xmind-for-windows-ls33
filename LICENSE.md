@@ -1,4 +1,4 @@
-# 
+# Enhance XMind for Windows with instant XMind for Windows Module | Gantt-view + real-time-sync, the #1 module. Includes Gantt-view and real-time-sync for a smoother and more
 
 
 
